@@ -1,4 +1,4 @@
-# Guang &amp; Nicole Diary Contest
+# Codce Guess Contest
 
 ## Rule
 
